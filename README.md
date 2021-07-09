@@ -1,4 +1,4 @@
-<img src=https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.rumbo.es%2Fvuelos%2Fmumbai&psig=AOvVaw3_bTWE6YljJnvGgbqzBA5F&ust=1625738936311000&source=images&cd=vfe&ved=0CAoQjRxqFwoTCJDd-tXb0PECFQAAAAAdAAAAABAD>
+<img src="/https://img.itinari.com/pages/images/original/5562d418-1616-409e-b458-a6ee61e46bac-istock-843318826.jpg?ch=DPR&dpr=1&w=1200&h=800&s=b08e442bc0c8d428106a238ce77f70da">
 
 ***Mumbai-Air-Quality***
 
